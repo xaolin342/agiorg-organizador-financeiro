@@ -1,1 +1,0 @@
-# agiorg-organizador-financeiro
